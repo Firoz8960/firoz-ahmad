@@ -1,1 +1,4 @@
-# firoz-ahmad
+NAME -- FIROZ AHMAD ANSARI 
+        MCA
+Lovely Professional University
+REGISTRATION NUMBER -- 12108612
